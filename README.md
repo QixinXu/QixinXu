@@ -1,3 +1,3 @@
 ### Hi, I'm Qixin 👋
 
-[CV](CV_1004.pdf)
+[CV](CV_1025.pdf)
